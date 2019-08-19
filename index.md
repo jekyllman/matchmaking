@@ -1,6 +1,6 @@
 ## Saturday, 14 September, 2019
 
-We welcome sincere single Muslims who are ready for the next chapter of their lives, who have not yet found a partner to take on this journey. This event is set-up in a fun, and natural environment for you to get to interact with likely-minded members of the opposite sex.
+We welcome sincere single Muslims who are ready for the next chapter of their lives, who have not yet found a partner to take on this journey. This event is set-up in a fun, and natural environment for you to get to interact with like-minded members of the opposite sex.
 
 ### Rules of participation
 
