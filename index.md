@@ -2,13 +2,15 @@
 
 We welcome sincere single Muslims who are ready for the next chapter of their lives, who have not yet found a partner to take on this journey. This event is set-up in a fun, and natural environment for you to get to interact with likely-minded members of the opposite sex.
 
+### Rules of participation
+
 ```markdown
 
 1. Singles only
-2. Age group 20 to 40
+2. Age 20 to 40
 3. Snacks provided
 4. Lucky draw
-5. Enjoy
+5. Enjoyment is a must!
 
 ```
 
