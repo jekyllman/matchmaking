@@ -1,6 +1,6 @@
-## From 7PM to 10PM on Saturday, 14 September, 2019
+## Saturday, 14 September, 2019
 
-Arrive at 6:30PM for registration!
+From 7PM to 10PM; arrive at 6:30PM for registration!
 
 ```markdown
 
@@ -13,6 +13,11 @@ Arrive at 6:30PM for registration!
 
 ### For more details
 
-Contact...
+Address: `6 Erin Road, Rondebosch`
+Dress code: `Smart casual`
+Cost: `R120 pp` and `R150 at the door` (if there is space available)
 
+Spots limited and contact Malikah now to learn more.
+
+*Mahrams allowed at `R70 pp`*
 
