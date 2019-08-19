@@ -1,6 +1,6 @@
 ## Saturday, 14 September, 2019
 
-From 7PM to 10PM; arrive at 6:30PM for registration!
+We welcome sincere single Muslims who are ready for the next chapter of their lives, who have not yet found a partner to take on this journey. This event is set-up for you to find the one in a facilitated yet natural environment.
 
 ```markdown
 
@@ -8,10 +8,13 @@ From 7PM to 10PM; arrive at 6:30PM for registration!
 2. Age group 20 to 40
 3. Snacks provided
 4. Lucky draw
+5. Enjoy
 
 ```
 
-### For more details
+### The nitty gritty...
+
+Time: `6:30PM for 7PM, till 10PM`
 
 Address: `6 Erin Road, Rondebosch`
 
@@ -19,7 +22,7 @@ Dress code: `Smart casual`
 
 Cost: `R120 pp` and `R150 at the door` (if there is space available)
 
-Spots limited and contact Malikah to book your seat now!
+Spots limited and [Whatsapp Malikah](https://wa.me/27677024410?text=Hi!%20I'm%20interested%20in%20purchasing%20a%20ticket%20for%20meet'n%20match.) on [+27677024410]((https://wa.me/27677024410?text=Hi!%20I'm%20interested%20in%20purchasing%20a%20ticket%20for%20meet'n%20match.) on to reserve your seat now!
 
 *Mahrams allowed at `R70 pp`*
 
