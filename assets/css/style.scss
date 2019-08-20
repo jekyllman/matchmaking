@@ -4,12 +4,16 @@
 @import "{{ site.theme }}";
 
 .whatsapp-icon-link {
-  text-decoration: none;
-  color: white;
-  font-size: 1em;
-  font-family: arial, sans-serif;
-  
   img {
-    vertical-align: middle;
+    width: 60px;
+  }
+  
+  @media handheld, only screen and (max-device-width:640px) {
+    img {
+      width: 120px;
+    }
   }
 }
+
+
+
