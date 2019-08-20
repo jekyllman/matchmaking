@@ -2,3 +2,14 @@
 ---
 
 @import "{{ site.theme }}";
+
+.whatsapp-icon-link {
+  text-decoration: none;
+  color: white;
+  font-size: 1em;
+  font-family: arial, sans-serif;
+  
+  img {
+    vertical-align: middle;
+  }
+}
