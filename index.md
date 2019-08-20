@@ -24,7 +24,7 @@ Dress code: `Smart casual`
 
 Cost: `R120 pp` and `R150 pp at the door` (if there is space available)
 
-Spots are limited and we will also balance guys and girls. [WhatsApp Malikah](https://wa.me/27677024410?text=Hi!%20I'm%20interested%20in%attending%20the%20meet'n%20match.) on [+27677024410](https://wa.me/27677024410?text=Hi!%20I'm%20interested%20in%attending%20the%20meet'n%20match.) to reserve your spot now!
+Spots are limited and we will also balance guys and girls. [WhatsApp Malikah](https://wa.me/27677024410?text=Hi!%20I'm%20interested%20in%20attending%20the%20meet'n%20match.) on [+27677024410](https://wa.me/27677024410?text=Hi!%20I'm%20interested%20in%20attending%20the%20meet'n%20match.) to reserve your spot now!
 
 *Mahrams allowed at `R70 pp`*
 
