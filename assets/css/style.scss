@@ -4,11 +4,19 @@
 @import "{{ site.theme }}";
 
 .whatsapp-icon-link {
+  position: fixed;
+  bottom: 2vh;
+  right: 2vw;
+
   img {
     width: 60px;
   }
   
+  /* Mobile */
   @media handheld, only screen and (max-device-width:640px) {
+    bottom: 1vh;
+    right: 3vw;
+    
     img {
       width: 120px;
     }
