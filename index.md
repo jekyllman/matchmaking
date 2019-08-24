@@ -18,7 +18,7 @@ We welcome sincere single Muslims who are ready for the next chapter of their li
 
 Time: `6:30PM for 7PM, till 10PM`
 
-Address: `6 Erin Road, Rondebosch`
+Address: `Erin Hall, 8 Erin Road, Rondebosch`
 
 Dress code: `Smart casual`
 
