@@ -28,3 +28,8 @@ Spots are limited and we will also balance guys and girls. [WhatsApp Malikah](ht
 
 *Mahrams allowed at `R70 pp`*
 
+{:.fake-h2}
+This will be styled as a p tag with the css class fake-2
+
+[![Facebook](/assets/facebook.png)](https://www.facebook.com/islamicmatchmakingcapetown)
+
