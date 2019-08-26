@@ -14,6 +14,23 @@ We welcome sincere single Muslims who are ready for the next chapter of their li
 
 ```
 
+### What to expect?
+ 
+How it Works
+
+1. Rgister the event via WhatsApp or 'sign up' on Facebook page @islamicmatchmakingcapetown. To ensure equal numbers of men and women, DO pre-register!
+2. On the day, you show up at the event dress neatly in smart casual clothing, get your name tag and match sheet.
+3. Feeling nervous?! Not to worry, we got you covered! There will be an option to take a little “starter kit” that will help kick start your conversation.
+4. The event will the begin short ice breaker to help break the tension before the actual "meets" begin.
+5. You will then get to meet with 6 to 10 (or more) other singles in less than 2 hours (via a series of 5-minute "one-on-one meets").
+6. We will facilitate it so that you are guaranteed to meet many of the singles present at the event in a safe and fun way.
+7. On your match sheet, you decide who you’d like to know better and they would do the same.
+8. At the end of the event, you hand in your match sheet with the selections into the prescribed boxes that will be on-site at the event.
+9. Islamic Match-making will then email each guest a list of participants who would like to hear from them again! Odds are you’ll have one or more matches.
+10. After that, it’s up to you!
+
+```
+
 ### The nitty gritty...
 
 Time: `6:30PM for 7PM, till 10PM`
