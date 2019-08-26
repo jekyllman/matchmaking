@@ -8,7 +8,7 @@ We welcome sincere single Muslims who are ready for the next chapter of their li
 
 1. Singles only
 2. Age 20 to 40
-3. Snacks provided
+3. Appetizer and drink included
 4. Lucky draw
 5. Enjoyment is a must!
 
@@ -21,7 +21,7 @@ How it Works
 1. Rgister the event via [WhatsApp](https://wa.me/27677024410?text=Hi!%20I'm%20interested%20in%20attending%20the%20meet'n%20match.) or 'sign up' on Facebook page [@islamicmatchmakingcapetown](https://www.facebook.com/islamicmatchmakingcapetown). To ensure equal numbers of men and women, DO pre-register!
 2. On the day, you show up at the event dress neatly in smart casual clothing, get your name tag and match sheet.
 3. Feeling nervous?! Not to worry, we got you covered! There will be an option to take a little “starter kit” that will help kick start your conversation.
-4. The event will the begin short ice breaker to help break the tension before the actual "meets" begin.
+4. The event will begin with a short ice breaker to help break the tension before the actual "meets" begin.
 5. You will then get to meet with 6 to 10 (or more) other singles in less than 2 hours (via a series of 5-minute "one-on-one meets").
 6. We will facilitate it so that you are guaranteed to meet many of the singles present at the event in a safe and fun way.
 7. On your match sheet, you decide who you’d like to know better and they would do the same.
