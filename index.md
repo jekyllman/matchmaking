@@ -29,8 +29,6 @@ How it Works
 9. Islamic Match-making will then email each guest a list of participants who would like to hear from them again! Odds are you’ll have one or more matches.
 10. After that, it’s up to you!
 
-```
-
 ### The nitty gritty...
 
 Time: `6:30PM for 7PM, till 10PM`
