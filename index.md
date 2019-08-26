@@ -16,7 +16,7 @@ We welcome sincere single Muslims who are ready for the next chapter of their li
 
 ### What to expect?
  
-How it Works
+How it works
 
 1. Register for the event via [WhatsApp](https://wa.me/27677024410?text=Hi!%20I'm%20interested%20in%20attending%20the%20meet'n%20match.) or 'sign up' on the Facebook page [@islamicmatchmakingcapetown](https://www.facebook.com/islamicmatchmakingcapetown). To ensure equal numbers of men and women, DO pre-register!
 2. On the day, you show up at the event dress neatly in smart casual clothing, get your name tag and match sheet.
