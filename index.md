@@ -7,10 +7,9 @@ We welcome sincere single Muslims who are ready for the next chapter of their li
 ```markdown
 
 1. Singles only
-2. Age 20 to 40
-3. Appetizer and drink included
-4. Lucky draw
-5. Enjoyment is a must!
+2. Appetizer and drink included
+3. Lucky draw
+4. Enjoyment is a must!
 
 ```
 
